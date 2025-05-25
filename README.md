@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Prabha93
 - 👀 I’m interested in creating Innovative Products
-- 🌱 I’m currently learning Product Management
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me prabhanathnair@gmail.com
 
